@@ -72,7 +72,7 @@ vorba la o adică de onoarea mea de familist...
 
 ***IPINGESCU*** Stau.
 
-> Intră 1930
+## Intră 1930
 
 https://github.com/xKristee29/FurTunNoaptea/assets/58639803/0f97da02-6d31-419e-8869-048b64e9722f
 
@@ -98,7 +98,7 @@ Giurgiu.
 
 ***IPINGESCU*** Rezon!
 
-> Iese 1930 după ***În sfârşit, se isprăveşte comedia.***
+## Iese 1930 după ***În sfârşit, se isprăveşte comedia.***
 
 ***JUPÂN DUMITRACHE*** În sfârşit, se isprăveşte comedia. Ne sculăm să plecăm;
 coate-goale se scoală şi dumnealui. Plecăm noi, pleacă şi dumnealui după noi. Eu
@@ -482,8 +482,8 @@ mondirului. Amândoi ies fuga prin fund, ***Ipingescu*** şuierând signalul de 
 
 #### ------------------------ SCENA V
 
-> Intră Femei Femei - Mărgineanu <br>
-> Iese melodia când încep versurile
+## Intră Femei Femei - Mărgineanu <br##
+## Iese melodia când încep versurile
 
 https://github.com/xKristee29/FurTunNoaptea/assets/58639803/2e18dee8-d834-4199-baf0-d38b6519f615
 
