@@ -74,6 +74,9 @@ IPINGESCU Stau.
 
 > Intră 1930
 
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/0f97da02-6d31-419e-8869-048b64e9722f
+
+
 JUPÂN DUMITRACHE Ştii dumneata că la lăsata secului am mers la grădină
 la "Iunion"; erau eu, consoarta mea şi cumnată-mea Ziţa. Ne punem la o masă, ca
 să vedem şi noi comediile alea de le joacă Ionescu. Trece aşa preţ ca la un sfert de
@@ -483,6 +486,8 @@ SCENA V
 
 > Intră Femei Femei - Mărgineanu <br>
 > Iese melodia când încep versurile
+
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/2e18dee8-d834-4199-baf0-d38b6519f615
 
 SPIRIDON (singur, intră din dreapta făcându-şi o ţigară)
 Măă! al dracului rumân şi jupânul nostru! Bine l-a botezat cine l-a botezat
