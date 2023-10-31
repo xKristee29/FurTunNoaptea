@@ -3,6 +3,8 @@
 
 În Bucureşti, la Dumitrache
 
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/054f9f0a-4135-4be4-b2d0-079c7c757f73
+
 ### ACTUL I
 
 (O odaie de mahala. Uşă în fund dând în sala de intrare; de amândouă părţile
@@ -992,6 +994,12 @@ mă ştii că ţiu când e la o adică...
 Lasă, jupâne, mă ştii că consimţ la onoarea dumitale de familist!...
 (Cortina)
 
+## Veta până când termină schimbarea decorului
+
+
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/94ffce56-8012-46f0-9230-3f8944d41d98
+
+
 ### ACTUL II
 
 (Aceeaşi odaie. O lampă cu gaz arde pe masă) ***VETA***, ***CHIRIAC***
@@ -1515,7 +1523,11 @@ pe lângă butoiul meu înjurându-mă; eu, ca june cu educaţiune, mă fac că 
 Toţi se depărtează... Auz un zgomot, strigăte, ţipete de femei, în fine o
 împuşcătură. Zgomotul apoi cu încetul se stinge, totul rămâne într-un silenţiu
 lugubru, numai din depărtare se aude orologiul de la Stabiliment bătând
-unsprezece şi douăzeci... oră fatală pentru mine!
+unsprezece şi douăzeci... 
+
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/054f9f0a-4135-4be4-b2d0-079c7c757f73
+
+oră fatală pentru mine!
 Ies binişor din butoiul meu, mă târăsc de-a buşele pe schele şi mă pomenesc
 înapoi aci... Ce să fac? Pe unde să ies? Îmi trebuie o inspiraţiune ingenioasă...
 (pune mâna la frunte şi caută în gând.) Da, am găsit-o! Să ies pe uşe. (merge
@@ -1825,3 +1837,7 @@ la bănuieli rele.
 
 ***IPINGESCU*** Rezon!
 (Pornesc cu toţii veseli spre fund.) (Cortina)
+
+
+https://github.com/xKristee29/FurTunNoaptea/assets/58639803/00644363-9099-4b9e-ac32-5ea3529e2332
+
