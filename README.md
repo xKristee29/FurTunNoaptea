@@ -994,7 +994,7 @@ mă ştii că ţiu când e la o adică...
 Lasă, jupâne, mă ştii că consimţ la onoarea dumitale de familist!...
 (Cortina)
 
-## Veta până când termină schimbarea decorului
+## Veta până când termină schimbarea decorului (00:40)
 
 
 https://github.com/xKristee29/FurTunNoaptea/assets/58639803/94ffce56-8012-46f0-9230-3f8944d41d98
